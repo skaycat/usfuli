@@ -1,8 +1,7 @@
 US福利网最新地址：
 http://www.usfuli.icu
 
-US综合福利在线最新网址：
-http://vip.91vipmp4.name
+US综合福利在线最新网址：线路优化升级中，请稍后......
 
 US女优馆在线最新网址：
 http://iv.91vipmp4.name
