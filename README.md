@@ -18,6 +18,3 @@ http://www.usfuli.today/txt
 
 US免VIP追剧网：
 http://free.91vipmp4.name/
-
-US全网VIP视频解析：
-http://free.91vipmp4.name/jiexi/
