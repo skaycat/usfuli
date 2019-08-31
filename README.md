@@ -10,6 +10,9 @@ http://www.91vipmp4.name
 US番号网最新地址：
 http://www.usfanhao.com
 
+US Asmr网最新地址：
+http://www.usasmr.top
+
 US免VIP追剧网：
 http://free.91vipmp4.name
 
