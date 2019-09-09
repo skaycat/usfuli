@@ -17,7 +17,7 @@ US免VIP追剧网：
 http://free.91vipmp4.name
 
 US爬墙专用梯子：
-http://jiasd.us/6923
+http://jiasd.cc/6923
 
 US轻福利最新地址：
 http://www.usfuli.today
