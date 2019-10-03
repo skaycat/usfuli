@@ -2,7 +2,7 @@ US福利套餐优惠：
 http://pornba.net/price
 
 US福利网最新地址：
-http://www.usfuli.today
+http://www.usfuli.live
 
 US在线最新网址：
 http://www.91vipmp4.name
