@@ -1,5 +1,5 @@
 US福利套餐优惠：
-http://pornba.net/price
+http://usfuli.today/price
 
 US福利网最新地址：
 http://www.usfuli.live
@@ -12,9 +12,6 @@ http://www.usfanhao.com
 
 US Asmr/明星ai换脸福利网最新地址：
 http://www.usasmr.top
-
-US免VIP追剧网：
-http://free.91vipmp4.name
 
 US爬墙专用梯子：
 https://goen.win/92fud9
